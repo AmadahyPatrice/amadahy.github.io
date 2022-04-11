@@ -1,6 +1,4 @@
-# amadahy.github.io
-	
-	# Adhy's Fav KDrama Series
+# Adhy's Fav KDrama Series
 
 **KDrama Series:**
 
