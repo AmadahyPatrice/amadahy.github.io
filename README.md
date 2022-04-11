@@ -1,9 +1,11 @@
 # amadahy.github.io
+	
 	# Adhy's Fav KDrama Series
 
 **KDrama Series:**
 
-(https://user-images.githubusercontent.com/102704674/162681981-0f7c9b81-694e-4b37-a4f2-5c9c6e6d7a90.jpeg)
+![39334596-5845-490F-9D79-DEEDDF00403F](https://user-images.githubusercontent.com/102704674/162683927-a3fb96f7-8139-4dea-9ae9-97b2ef880f27.jpeg)
+
 
 
 - Happiness
