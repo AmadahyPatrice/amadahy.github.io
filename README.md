@@ -47,7 +47,8 @@
 
 **Entertainment:**
 
-![BABB800A-914D-48C9-943E-FCEA3D8B35B2](https://user-images.githubusercontent.com/102704674/162686684-0929055d-4bcb-4d9c-b585-1b0f51967882.jpeg)
+![FD809B0F-7A41-44E6-8D1C-5830BE17CCDB](https://user-images.githubusercontent.com/102704674/162688642-db73644d-2f5c-4502-9994-e8c7e8a9f72b.jpeg)
+
 
 
 
@@ -64,4 +65,7 @@
 - Weekly Idol
 - Sixth Sense
 - Jessi Showterview
+- 2 Days and 1 Night
+- How do you play?
+- The Return of Superman
 
