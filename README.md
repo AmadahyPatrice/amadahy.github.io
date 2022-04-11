@@ -1,3 +1,4 @@
+theme: jekyll-theme-merlot
 # amadahy.github.io
 	# H1 Adhy's Fav KDrama Series
 **KDrama Series:**
