@@ -1,4 +1,4 @@
-# Adhy's Fav KDrama Series
+# Adhy's Recent Favorites
 
 **KDrama Series:**
 
@@ -43,3 +43,25 @@
 - Vagabond
 - Busted 1, 2, & 3
 - Nevertheless
+
+
+**Entertainment:**
+
+![BABB800A-914D-48C9-943E-FCEA3D8B35B2](https://user-images.githubusercontent.com/102704674/162686684-0929055d-4bcb-4d9c-b585-1b0f51967882.jpeg)
+
+
+
+- Going Seventeen
+- Treasure Map
+- Running Man
+- Home Alone
+- Top Recipe at Fun-Staurant
+- Knowing Bros
+- My Little Old Boy
+- New World
+- Street Alcohol Fighter
+- Omniscient Interfering View
+- Weekly Idol
+- Sixth Sense
+- Jessi Showterview
+
